@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a talented, ambitious and hardworking individual, with broad skills and experience in development and programming and leading projects. I 
+I am Software Engineer.I am a talented, ambitious and hardworking individual, with broad skills and experience in development and programming and leading projects.
 
 
 ## 🌐 Socials:
